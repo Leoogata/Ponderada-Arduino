@@ -1,0 +1,2 @@
+Link para o projeto tinkercad
+https://www.tinkercad.com/things/kHIPNCsbnqU-ponderada-arduino/editel?returnTo=%2Fthings%2FkHIPNCsbnqU-ponderada-arduino&sharecode=7_J5Z91m4dUuMA-UTBW82VJ7FOIJwpG0GQHtHpV5wuk
